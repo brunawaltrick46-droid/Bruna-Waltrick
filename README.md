@@ -1,4 +1,3 @@
 ## Bruna-Waltrick
-
-nbwuqbuqibdiuqb a
-#najbcjsanowqnqiponcq
+SEJAM BEM VINDOS AO MEU PERFIL
+-TEC em Informatica...
